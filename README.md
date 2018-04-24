@@ -1,1 +1,1 @@
-# main-media-lynchings
+# detroit-main
